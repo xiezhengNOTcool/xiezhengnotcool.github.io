@@ -1,2 +1,2 @@
-# xiezhengnotcool.github.io
+# [NOtCool](https://xiezhengnotcool.github.io)
 temporary homepage
